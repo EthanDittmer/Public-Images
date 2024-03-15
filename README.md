@@ -1,2 +1,2 @@
 # Public-Images
-Art Work by Lauren Jackson. Request Permission to use.
+Artwork by Lauren Jackson. Request Permission to use.
