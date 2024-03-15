@@ -1,2 +1,2 @@
 # Public-Images
-Public Repo for Images
+Art Work by Lauren Jackson. Request Permission to use.
